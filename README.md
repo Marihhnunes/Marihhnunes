@@ -1,0 +1,4 @@
+- 👋 Oi, eu sou @Marihhnuness
+- 👀 Programação/linguagem 
+-👩🏼‍💻análise de desenvolvimento de sistemas
+- 📫 mariane.fenunes@gmail.com  
